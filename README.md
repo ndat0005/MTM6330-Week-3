@@ -1,2 +1,5 @@
 # MTM6330-Week-3
-Practicing 
+Practicing
+ndatinya herve
+
+section 1
